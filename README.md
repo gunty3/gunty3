@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @gunty3
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning Computer scince
+- 💞️ I’m looking to collaborate on Anything
+- 📫 How to reach me Discord @gunty1
